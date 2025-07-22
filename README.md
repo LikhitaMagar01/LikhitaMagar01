@@ -2,4 +2,4 @@
 - 👀 I’m interested in creating interesting and unique applications.
 - 💞️ I’m looking to collaborate on effective projects and any start up ideas.
 - 📫 How to reach me: leekhitame@gmail.com
-https://likhitamagar01.github.io/likhita-portfolio/
+- know me https://likhitamagar01.github.io/likhita-portfolio/
